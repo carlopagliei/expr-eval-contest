@@ -4,12 +4,10 @@ L’occupazione di Soledar da parte della Russia sarebbe, di fatto, la prima vit
 
 Da alcuni giorni Soledar è il centro degli scontri più duri tra l’esercito ucraino e le forze russe: da parte della Russia, più che l’esercito regolare, sta combattendo il gruppo Wagner, un’agenzia di mercenari affiliata al governo russo che ha assoldato tra gli altri carcerati ed ex militari.
 
-
 La battaglia per Soledar (e più in generale quella per Bakhmut) sta provocando enormi perdite da entrambe le parti. Oleh Zhdanov, un analista militare ucraino, ha detto che la battaglia è «la più intensa dell’intera linea del fronte». Russi e ucraini stanno combattendo casa per casa e in condizioni difficilissime, con temperature abbondantemente sotto lo zero. Martedì Hanna Maliar, la viceministra della Difesa ucraina, ha detto che «l’area intorno alle nostre posizioni è disseminata di corpi di soldati nemici».
 
 Soltanto martedì, Soledar è stata oggetto di 86 bombardamenti con l’artiglieria da parte delle forze russe.
 
 Non è del tutto chiaro perché il gruppo Wagner si stia accanendo a tal punto contro Soledar. La sua conquista fa ovviamente parte del tentativo di accerchiare Bakhmut, ma né l’uno né l’altro centro urbano hanno particolare valore strategico, secondo la maggior parte degli esperti. Dopo mesi di combattimenti, però, hanno ormai assunto un valore simbolico notevole.
-
 
 Una delle spiegazioni possibili dell’accanimento contro Soledar e Bakhmut sta nel fatto che Yevgeny Prigozhin, che è anche un imprenditore e politico molto influente in Russia, stia cercando di ottenere una vittoria militare personale, per aumentare il proprio prestigio nel paese. Durante la guerra, Prigozhin è diventato di gran lunga la persona più potente in Russia dopo Putin, e negli scorsi mesi ha assunto un ruolo di ministro della Difesa informale, spesso influenzando le decisioni strategiche di tutto l’esercito e mettendo in ombra Sergei Shoigu, il ministro della Difesa.
