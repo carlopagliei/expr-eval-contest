@@ -6,7 +6,7 @@ L’occupazione di Soledar da parte della Russia sarebbe, di fatto, la prima vit
 
 Da alcuni giorni Soledar è il centro degli scontri più duri tra l’esercito ucraino e le forze russe: da parte della Russia, più che l’esercito regolare, sta combattendo il gruppo Wagner, un’agenzia di mercenari affiliata al governo russo che ha assoldato tra gli altri carcerati ed ex militari.
   
-THE MIDDLE
+THE MIDDLE 
 
 La battaglia per Soledar (e più in generale quella per Bakhmut) sta provocando enormi perdite da entrambe le parti. Oleh Zhdanov, un analista militare ucraino, ha detto che la battaglia è «la più intensa dell’intera linea del fronte». Russi e ucraini stanno combattendo casa per casa e in condizioni difficilissime, con temperature abbondantemente sotto lo zero. Martedì Hanna Maliar, la viceministra della Difesa ucraina, ha detto che «l’area intorno alle nostre posizioni è disseminata di corpi di soldati nemici».
 
